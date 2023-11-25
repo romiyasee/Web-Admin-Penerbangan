@@ -6,10 +6,3 @@
 
 ### Dashboard
 
-kwlhswk
-kdj
-liohewioh
-awldhawkldh
-rhewkrhkw
-wkdhawkdh
-kldjlakd
